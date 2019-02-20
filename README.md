@@ -1,2 +1,2 @@
 # lovelys
-Angie's Bakery
+Angie's Bakery Coming Soon
